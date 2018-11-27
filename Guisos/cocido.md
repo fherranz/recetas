@@ -4,7 +4,6 @@ Fideo mediano (al gusto). Yo pongo 1 puñado pequeño por persona.
 1 nabo
 3 zanahorias grandes
 6 patatas medianas. (1 por personas)
-1 calabacín
 1 repollo y 3 dientes de ajo (para rehogar el repollo)
 1/2 Kg de morcillo de ternera
 1/4 Kg de costillas de cerdo
